@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Nguyễn Bình Phương
-- 👀 I’m interested in...
 - 🌱 I’m currently learning THCS Hùng Vương
 - 💞️ I’m looking to collaborate on facebook 
 - 📫 How to reach me nguyenbinhphuong01@icloud.com
